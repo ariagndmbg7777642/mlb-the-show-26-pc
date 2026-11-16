@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download MLB The Show 26 PC Port](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mlb-the-show-26-pc)
+[![Download MLB The Show 26 PC Port](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/yRC5dAckwGRHif7e8)
 
 </div>
 
@@ -141,7 +141,7 @@
 
 <div align="center">
 
-[![Download MLB The Show 26 PC Port](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mlb-the-show-26-pc)
+[![Download MLB The Show 26 PC Port](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/yRC5dAckwGRHif7e8)
 
 </div>
 
@@ -321,7 +321,7 @@ Play MLB The Show 26 on PC for free. **MLB The Show 26 – PC Port Updated** giv
 
 <div align="center">
 
-[![Download MLB The Show 26 PC Port](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/mlb-the-show-26-pc)
+[![Download MLB The Show 26 PC Port](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/yRC5dAckwGRHif7e8)
 
 **Version 1.0.0** — Free MLB The Show 26 PC unofficial port. May 2026 update. Zero cost. No payment.
 
